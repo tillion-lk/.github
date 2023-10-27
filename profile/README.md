@@ -1,5 +1,3 @@
-Creating a privacy policy and terms and conditions for your business in Sri Lanka is essential to establish transparency and protect both your company and your clients. Here is a sample privacy policy and terms and conditions tailored to your specific tasks and services. Please note that it is important to consult with a legal professional to ensure that these documents comply with Sri Lankan laws and regulations.
-
 **Privacy Policy**
 
 **1. Introduction**
